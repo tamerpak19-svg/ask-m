@@ -1,0 +1,2 @@
+# ask-m
+SENİ ÇOK SEVİYORUM SEVGİLİM
